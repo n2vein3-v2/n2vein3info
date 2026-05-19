@@ -8,7 +8,6 @@ $$\color{black} ⌒⌒⌒⌒⌒⌒⌒⌒⌒⌒⌒⌒⌒⌒⌒ $$
 
 ${\textsf{\color{#3d0909} "everything my heart desires..." }}$
 
-$$\color{brown} ⋆⋅†⋅⋆ $$
 
 <p align="left">
 ${\textsf{\color{brown} ◈ for pt: im mostly staying near docks or in roblox area, }}$  
@@ -19,7 +18,6 @@ ${\textsf{\color{brown} w2i / c*h freely unless stated otherwise }}$
 
 $$\color{brown} ⋆⋅†⋅⋆ $$
 
-$$\color{red} check \space straw \space for \space more \space info $$
 
 $$\color{black} ─────────────────── ✦ ─────────────────── $$
 
